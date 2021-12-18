@@ -6,4 +6,9 @@
 ✏️ Dysgraphique et alors?!
 🇫🇷 Français 
 
-Pour me joindre : Discord
+Fondateur : https://electrumvtc.fr/
+
+
+**Pour me joindre :**
+
+https://discordapp.com/users/291534343577272321
