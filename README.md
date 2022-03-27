@@ -15,6 +15,6 @@
 
 **Pour me joindre :**
 
-📫[ethandudutech@gmail.com](mailto:ethandudutech@gmail.com)
+📫[contact@ethanduault.fr](mailto:contact@ethanduault.fr)
 
 ☎️[Discord](https://discordapp.com/users/291534343577272321)
