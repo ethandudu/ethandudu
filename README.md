@@ -1,6 +1,5 @@
 ### Salut toi 👋
-
-💻 Terminale STI2D
+👨‍🎓 BUT R&T 1ère année
 
 🥞 Breton pur beurre
 
