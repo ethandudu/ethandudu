@@ -1,5 +1,5 @@
 ### Salut toi 👋
-👨‍🎓 BUT R&T 1ère année
+👨‍🎓 BUT R&T 2ème année
 
 🥞 Breton pur beurre
 
