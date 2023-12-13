@@ -9,8 +9,6 @@
 
 🇫🇷 Français
 
-✨ Fondateur : https://electrumvtc.fr/
-
 
 **Pour me joindre :**
 
