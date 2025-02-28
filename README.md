@@ -1,9 +1,9 @@
 ### Salut toi 👋
-👨‍🎓 BUT R&T 2ème année
+👨‍🎓 BUT R&T 3ème année
 
 🥞 Breton pur beurre
 
-🎂 20 ans de présence sur cette planète
+🎂 22 ans de présence sur cette planète
 
 ✏️ Dysgraphique et alors?!
 
