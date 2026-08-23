@@ -1,9 +1,9 @@
 ### Salut toi 👋
-👨‍🎓 BUT R&T 3ème année
+💻 Network and System Administrator
 
 🥞 Breton pur beurre
 
-🎂 22 ans de présence sur cette planète
+🎂 23 ans de présence sur cette planète
 
 ✏️ Dysgraphique et alors?!
 
